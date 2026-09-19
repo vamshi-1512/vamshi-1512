@@ -1,4 +1,4 @@
-# Hi, I'm Vamshi 👋
+# Hi, I'm Vamshi Reddy 👋
 
 ### CSE Student | Developer | UI/UX Designer
 
